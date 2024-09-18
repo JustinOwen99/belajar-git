@@ -12,3 +12,4 @@ Memutar Otak
 Semoga bisa lebih mengerti
 Lebih memahami
 Dan lulus
+lol
