@@ -11,3 +11,4 @@ Memutar Otak
 ##Harapan saya
 Semoga bisa lebih mengerti
 Lebih memahami
+Dan lulus
